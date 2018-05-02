@@ -1,0 +1,2 @@
+# BCQuanlykho
+Báo cáo
